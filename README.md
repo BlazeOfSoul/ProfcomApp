@@ -27,4 +27,4 @@
    ```
 5. Profit! У вас есть куча файлов- паспортов заполненых по нужным требованиям.
 По всем вопросам пишите в тг!
-![enter image description here](https://i.sunhome.ru/journal/112/nadomnaya-rabota-v2.orig.jpg)
+![enter image description here](h[ttps://i.sunhome.ru/journal/112/nadomnaya-rabota-v2.orig.jpg](https://i.pinimg.com/originals/1d/63/9f/1d639f441a406b59384dcc55674fd226.jpg)https://i.pinimg.com/originals/1d/63/9f/1d639f441a406b59384dcc55674fd226.jpg)
